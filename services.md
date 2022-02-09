@@ -1,24 +1,23 @@
-* Shampoo, blow dry, & style: **$35**
-* Shampoo, set, & style: **$45**
+* Shampoo, blow dry, & style: **$55**
+* Shampoo, set, & style: **$65**
 
-* Relaxer: **$70** (comes with trim & a style)
-* Sew-ins: starting at **$150**
-* Color: **$70**
+* Relaxer: **$85** (comes with trim & a style)
+* Sew-ins: starting at **$200**
+* Color: **$85**
 
-* Blow-outs for natural hair: **$55**
-* Braiding natural hair: starts at **$55**
-* Natural hair twist-outs: **$45**
-* Wash & re-twist for dreadlocks: starts at **$100**
+* Blow-outs for natural hair: **$75**
+* Braiding natural hair: starts at **$65**
+* Natural hair twist-outs: **$75**
 
-* Dry taper/trim: **$15**
-* Kid's wash, dry, style: **$25**
+* Dry taper/trim: **$25**
+* Kid's wash, dry, style: **$50**
 
 ## Add-on services:
-* Eyebrow arches: $7
-* Eyelashes: $15
-* Hot oil treatments: $10
-* Deep conditioning treatments: $15
+* Eyebrow arches: $10
+* Hot oil treatments: $20
+* Deep conditioning treatments: $25
 
-* **Late Fee:** $5 will be added to your total for every 10 min you are late to your appointment
-* **Cancellation Policy:** at least 3 hours courtesy notice, or you will be charged as a no show
-* **No Show Policy:** no call / no text, automatic $15 charge to rebook
+* **Late Fee:** $10 will be added to your total for every 5 min you are late to your appointment
+* **Cancellation Policy:** at least 48 hours courtesy notice, or you will be charged as a no show
+* **No Show Policy:** no call / no text = immediate charge of 50% of the service fee
+* **Three or more cancellations and you will no longer be a client.**
