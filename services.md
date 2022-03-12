@@ -4,6 +4,7 @@
 * Relaxer: **$85** (comes with trim & a style)
 * Sew-ins: starting at **$200**
 * Color: **$85**
+* Rinse: **$20**
 
 * Blow-outs for natural hair: **$75**
 * Braiding natural hair: starts at **$65**
