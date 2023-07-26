@@ -6,6 +6,7 @@
 * Color: **$85**
 * Hi lites: starting at **$85**
 * Rinse: **$20**
+* Relaxers: **$85**
 
 * Blow-outs for natural hair: **$75**
 * Braiding natural hair: starts at **$65**
